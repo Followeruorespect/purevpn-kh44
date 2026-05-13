@@ -1,4 +1,4 @@
-
+Enhance your PureVPN experience with custom PureVPN Utility | streaming-optimization + free-trial, the #1 utility. Includes streaming-optimization and free-trial for a safer and
 
 
 
